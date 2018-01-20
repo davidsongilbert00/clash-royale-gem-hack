@@ -1,6 +1,6 @@
 Clash Royale Gem Hack Online is the only online generator for mobile devices released this week by our company! Access our Online Clash Royale Gem Hack tool for free and commence to generate Unlimited Coins and Resources to your account. The Online-Generator, as always, is on Android, iOS and WIndows Phone. We decided to build Clash Royale Gem generator to quickly add unlimited resources to your account. You don't have to have root or jailbreak to use our Online-Generator. Make sure you follow all the instructions in the page below if you want it to work perfectly.
 
-Access the generator by going here ---> <a href="http://gamemodtool.club" title="Clash Royale Gem Generator">Clash Royale Gem Generator</a>
+Access the generator by going here ---> <a href="http://clashroyaleunlimited.club" title="Clash Royale Gem Generator">Clash Royale Gem Generator</a>
 
 
 
